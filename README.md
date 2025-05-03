@@ -44,12 +44,6 @@ I also run a Call of Duty Mobile TikTok page, mixing clutch plays with content d
 ---
 
 ## 📬 Let's Connect
-
-- 🌐 [balogram.site](https://balogram.site)<br/>
-- 🐦 Twitter: [@UXBalogram](https://x.com/tundeagboke1?s=21)<br/>
-- 📷 TikTok: [@UXBalogram](https://www.tiktok.com/@balogram_techtalk?_t=ZM-8w23Jndl4zN&_r=1)<br/>
-- 📺 YouTube: [Balogram_Tech_Talk](https://youtube.com/@Balogram_Tech_Talk)<br/>
-
 ---
 
 
